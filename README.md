@@ -1,4 +1,4 @@
-# Wisdom by Nico Wong
+# Wisdom
 
 - “We all have limited time on this planet. I better use it well.” 
 - “For some reason, I may go somewhere else after this life.” 
