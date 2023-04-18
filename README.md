@@ -8,3 +8,4 @@
 - "All that really matters is who you love and how well you love them." - Leigh Brasington
 - "Impermanence is one of the beauties of life."
 - "All is impermanent."
+- "Happiness isn't expensive."
