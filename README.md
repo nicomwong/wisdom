@@ -1,5 +1,7 @@
 # Wisdom
 
+These quotes are curated by me. Some quotes are created by me; some are inspired by another; some are another's.
+
 - “We all have limited time on this planet. I better use it well.” 
 - “For some reason, I may go somewhere else after this life.” 
 - “I meditate to cultivate samatha and vipassana.” 
