@@ -11,3 +11,6 @@ These quotes are curated by me. Some quotes are created by me; some are inspired
 - "Impermanence is one of the beauties of life."
 - "All is impermanent."
 - "Happiness isn't expensive."
+- "Right Effort should produce an attitude of steady and cheerful determination."
+- "Right Mindfulness asks us to be aware of the journey at that moment, and to be clear and undistracted at that moment."
+- "The benefits of Right Mindfulness and Right Concentration are significant as they teach the mind to see things, not as we are conditioned to seeing them, but as they really are. At the same time, they also lead to a feeling of calm and peace with the world. By being in the moment and being able to concentrate effectively, one feels a sense of joy in the moment. Release from the control of past pains and future mind games takes us closer to freedom from suffering."
