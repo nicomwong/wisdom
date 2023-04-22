@@ -2,9 +2,8 @@
 
 These quotes are curated by me. Some quotes are created by me; some are inspired by another; some are another's.
 
-- “We all have limited time on this planet. I better use it well.” 
-- “For some reason, I may go somewhere else after this life.” 
-- “I meditate to cultivate samatha and vipassana.” 
+- “We all have limited time on this planet. We must use it well.” 
+- “I meditate to cultivate samatha (calm, stable, tranquil mind) and vipassana (insight).” 
 - "Sometimes there is too much talking; sometimes there is too little talking."
 - Try to find a job you actually want to be doing; whether it be the first job, second job, ...
 - "All that really matters is who you love and how well you love them." - Leigh Brasington
